@@ -1,8 +1,23 @@
 # links to save
+teaching
 sat
 vocab
 duolingo and vocab
 ap
+
+#education
+
+Thomas Aquinas
+
+https://archive.org/details/stthomasaquinase0000unse_a4r0/page/n1/mode/2up
+
+John Dewey
+
+https://www.researchgate.net/publication/314967156_John_Dewey_and_His_Philosophy_of_Education
+
+Introduction to the Philosophy of Education
+
+https://www.researchgate.net/profile/H-Siegel-3/publication/297163004_Introduction_Philosophy_of_Education_and_Philosophy/links/5a734f68aca2720bc0dbb82a/Introduction-Philosophy-of-Education-and-Philosophy.pdf
 
 # sat
 
