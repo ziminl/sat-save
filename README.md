@@ -34,6 +34,9 @@ https://satsuite.collegeboard.org/practice/practice-tests/paper?excmpid=mtg796-s
 
 
 # voacb
+https://www.slideshare.net/slideshow/5000-sat-vocabulary-words/252474603
+
+https://www.academia.edu/28218538/5000_Collegiate_Words_with_Brief_Definitions_Amass_an_Ivy_League_Vocabulary
 
 https://quizlet.com/user/raybeam3000/sets
 https://quizlet.com/925915179/1000-sat-vocabulary-flash-cards/
