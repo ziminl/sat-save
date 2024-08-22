@@ -1,11 +1,11 @@
 # links to save
-teaching
+education & teaching 
 sat
 vocab
 duolingo and vocab
 ap
 
-#education
+# education
 
 Thomas Aquinas
 
