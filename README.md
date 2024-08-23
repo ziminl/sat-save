@@ -20,6 +20,10 @@ Introduction to the Philosophy of Education
 https://www.researchgate.net/profile/H-Siegel-3/publication/297163004_Introduction_Philosophy_of_Education_and_Philosophy/links/5a734f68aca2720bc0dbb82a/Introduction-Philosophy-of-Education-and-Philosophy.pdf
 
 # sat
+--
+calculator
+https://collegereadiness.collegeboard.org/sat/taking-the-test/calculator-policy
+--
 
 https://www.cracksat.net/digital/index.html
 
